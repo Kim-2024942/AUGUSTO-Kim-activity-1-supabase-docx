@@ -1,0 +1,1 @@
+# AUGUSTO-Kim-activity-1-supabase-docx
